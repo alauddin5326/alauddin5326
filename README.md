@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 😊 My name is Alauddin
 
 <!--
 **alauddin5326/alauddin5326** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
